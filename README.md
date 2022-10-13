@@ -1,4 +1,1 @@
-# phones cv
-cbhdfhzngbhtdz
-bfbdthndfb
-cfbdzthh
+# phones
